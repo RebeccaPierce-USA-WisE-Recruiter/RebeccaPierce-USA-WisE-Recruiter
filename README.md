@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @RebeccaPierce-USA-WisE-Recruiter LinkedIn: https://www.linkedin.com/in/rebeccapierce/
+- 👀 I’m looking for H4EAD, GC or US candidates who might be interested in exploring some of our long term (18+ Months) remote jobs: Data Scientist, Web Reporting Analyst, PowerBI with AZURE, Cosmos a major plus! Feel free to browse our open positions www.wisengineering.com/careers.html  
+- 🌱 I’m currently learning more about the specific skill sets, tools and technologies required for these roles! 
